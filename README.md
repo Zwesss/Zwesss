@@ -2,12 +2,8 @@
 
 [YouTube - @Zwess](https://www.youtube.com/channel/UCiL98vMbGydUPftgxLF_GvA)
 
-[YouTube - @Zwess](https://www.youtube.com/channel/UCiL98vMbGydUPftgxLF_GvA)
+### GITHUB 💻
 
-[YouTube - @Zwess](https://www.youtube.com/channel/UCiL98vMbGydUPftgxLF_GvA)
+Main GitHub account:
 
-[YouTube - @Zwess](https://www.youtube.com/channel/UCiL98vMbGydUPftgxLF_GvA)
-
-[YouTube - @Zwess](https://www.youtube.com/channel/UCiL98vMbGydUPftgxLF_GvA)
-
-:)
+[GitHub - @TimLdev](https://github.com/TimLdev)
